@@ -1,0 +1,1 @@
+# scopelog-privacy-policy
